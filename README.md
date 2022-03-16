@@ -1,2 +1,2 @@
 # Mtech-Mini-project
-![embed]https://drive.google.com/file/d/1-IJBfesEy-S41SfAmkMo4hh0dhwKt6PE/view?usp=sharing[/embed]
+![embed]https://docs.google.com/document/d/1dcRM1ubj4thdWuu8RDUuRW8s1ZYW0BkWxdFNRounxzA/edit?usp=sharing[/embed]
